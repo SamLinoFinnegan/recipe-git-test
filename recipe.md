@@ -10,7 +10,17 @@ Serves 12
 [Watch video](https://www.youtube.com/watch?v=st-3Z323aHA&feature=emb_logo)
 
 ## INGREDIENTS
-
+* 100 g Almond flour
+* 100 g white flour
+* 200 g coconut oil
+* 200 ml Maple syrup
+* 60 g Cacao
+* 1 tbsp Vanilla
+* 200 g Beetroot cooked and chopped roughly
+* 1 tbsp baking powder
+* 200 g dark Choc
+* 150 ml boiling water
+* Freeze dried raspberries to decorate
 
 ## INSTRUCTIONS
 1. Directions
